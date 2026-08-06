@@ -17,7 +17,7 @@
 
 \## 📞 연락처
 
-\- 이메일: mijong0726@gmail.com 
+\- 이메일: mijong0726@naver.com
 
 
 
